@@ -1,4 +1,4 @@
 <div align='center'>
 
-# Unblocked Games Website
-### It is very cool :)
+# Brady's Method
+### Unblocked Games Website
